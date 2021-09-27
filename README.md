@@ -7,5 +7,5 @@ I am here to learn and looking to collaborate with anyone who has a project.
 
 I Love travelling, discovering new places and new cultures. 
 
-Please contact (Me)[efoejean@gmail.com] if you have any question.
+Please contact [Me](efoejean@gmail.com) if you have any question.
 
